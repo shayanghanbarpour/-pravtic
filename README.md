@@ -1,1 +1,2 @@
 # -pravtic
+digo bahs ikonam
